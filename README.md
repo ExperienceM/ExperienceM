@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ExperienceM
-- 👀 I’m interested in ...pi and all cryptocurrency
+- 👀 I’m interested in ...Pi and all cryptocurrency
 - 🌱 I’m currently learning ... crypto 
-- 💞️ I’m looking to collaborate on ... pi and crypto 
+- 💞️ I’m looking to collaborate on ... Pi and crypto 
 - 📫 How to reach me ... officialsolomonchuks@gmail.com
 - 😄 Pronouns: ... He
 - ⚡ Fun fact: ... Joker/lover
